@@ -1,4 +1,4 @@
-
+brookhaven rp hidden Script is the best brookhaven rp Script, featuring one-hit kill and no cooldown. Safe and powerful for all your needs.
 
 
 
